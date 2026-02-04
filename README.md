@@ -1,1 +1,0 @@
-# Nə baxsan Gijdıllax
